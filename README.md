@@ -1,1 +1,1 @@
-johnfranztaguran.github.io
+cet.github.io
